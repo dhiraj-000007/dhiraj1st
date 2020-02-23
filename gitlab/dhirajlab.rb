@@ -4,15 +4,5 @@
 4th raj
 5 saj
 6th no
-7th jai
-6th no
-7th jai
-6th no
-7th jai
-6th no
-7th jai
-6th no
-7th jai
-6th no
-7th jai
+
 
